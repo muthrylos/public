@@ -7,3 +7,4 @@
 <img width="1024" height="1024" alt="2b976efa-dea9-4d78-9cc7-b20e5596299b" src="https://github.com/user-attachments/assets/d8429543-3664-4b5c-8abd-ac2b0a125fba" />
 <img width="822" height="176" alt="Screenshot_2025-09-07_at_2 41 16_PM-removebg-preview" src="https://github.com/user-attachments/assets/9f10ad81-6858-42d2-81dd-c2b26e758737" />
 <img width="5109" height="6400" alt="thryloshand" src="https://github.com/user-attachments/assets/0f1e01a3-7635-44f3-a2a0-c99fbcc8ca03" />
+<img width="1440" height="650" alt="Screenshot 2025-09-07 at 3 21 08 PM" src="https://github.com/user-attachments/assets/c0fcaca7-2967-43a1-9de0-11310e186177" />
