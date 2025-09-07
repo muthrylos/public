@@ -9,3 +9,4 @@
 <img width="5109" height="6400" alt="thryloshand" src="https://github.com/user-attachments/assets/0f1e01a3-7635-44f3-a2a0-c99fbcc8ca03" />
 <img width="1440" height="650" alt="Screenshot 2025-09-07 at 3 21 08 PM" src="https://github.com/user-attachments/assets/c0fcaca7-2967-43a1-9de0-11310e186177" />
 <img width="4994" height="4056" alt="git" src="https://github.com/user-attachments/assets/845ad21c-c46a-4417-8c5c-b8705e44081e" />
+<img width="822" height="176" alt="Screenshot_2025-09-07_at_2 41 16_PM-removebg-preview" src="https://github.com/user-attachments/assets/da2e1a61-62d0-41a9-9526-3dddd958e80d" />
