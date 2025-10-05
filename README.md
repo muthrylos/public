@@ -17,3 +17,4 @@
 ![Free fire wallpaper #Freefire save = flown_ Games mobile](https://github.com/user-attachments/assets/d0c6a6b3-1e42-4369-953d-c3bbf6d2f477)
 ![_](https://github.com/user-attachments/assets/f806c8eb-387a-4df0-918d-da893cb73bd5)
 <img width="500" height="550" alt="Screenshot 2025-10-05 at 3 31 18 PM" src="https://github.com/user-attachments/assets/ecdad9de-b46b-4322-9941-5ef38edf197a" />
+<img width="1920" height="2176" alt="FOUNDER-2" src="https://github.com/user-attachments/assets/480694fc-3f8e-474d-ae7b-c64433136d00" />
