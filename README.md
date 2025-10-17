@@ -1,6 +1,9 @@
 <img width="941" height="774" alt="Screenshot 2025-10-04 at 3 58 45 PM" src="https://github.com/user-attachments/assets/755d5d2a-d884-44a1-868b-64b080c26739" />
 # public
 
+<img width="304" height="348" alt="misterutsav" src="https://github.com/user-attachments/assets/44ed447e-4931-4c67-be8d-050e1d1cda0e" />
+
+
 <img width="672" height="739" alt="thrylos1" src="https://github.com/user-attachments/assets/3c0217e6-5b42-4865-89e5-459dcfb43640" />
 <img width="5109" height="6400" alt="thryloshand" src="https://github.com/user-attachments/assets/4dab5422-af8d-44e9-9a1a-0525ba4cce4c" />
 <img width="411" height="88" alt="Screenshot 2025-09-07 at 2 41 16 PM" src="https://github.com/user-attachments/assets/1627befd-6638-4e17-b884-99d06d6d3615" />
